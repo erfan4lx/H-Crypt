@@ -4,21 +4,18 @@ The best FUD Crypter to make your .exe Trojan fully Undetectable from all AV's a
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx
- 
- Telegram : https://t.me/hack4lx
- 
+  
  Email : erfan4lx@gmail.com
- 
- Email : manifesto.blackhathackingteam@gmail.com
- 
+  
   ## Show on Youtube : https://youtu.be/HvaZ66Emuzc
  
 ## • Our Channels : 
 
-🆔 Our Website : https://M4nifest0.com
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🆔 Our Telegram Channel : https://t.me/M4nifest0
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
 
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_
 
 <p align="center">
   Follow Me On
