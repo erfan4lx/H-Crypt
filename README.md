@@ -15,7 +15,7 @@ Contact with me to get the Password of Zip file on :
 
 🆔My Telegram Channel : https://t.me/Erfan4lxTeam
 
-🆔My Instagram Page : https://www.instagram.com/_erfan4lx_
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 <p align="center">
   Follow Me On
